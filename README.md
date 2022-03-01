@@ -62,8 +62,8 @@ away from taking up challenging roles.
 ## Education
 
 ### **Gujarat Technological University, Gujarat, India**
-### Bachelor of Engineering - Computer engineering (2009- 2013)
-#### CGPA: 7.48
+Bachelor of Engineering - Computer engineering (2009- 2013)
+CGPA: 7.48
 
 ---
 
